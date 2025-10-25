@@ -11,10 +11,10 @@
 
 <br><img src="https://media.giphy.com/media/ObNTw8Uzwy6KQ/giphy.gif" width="30px">&nbsp;***Base de Datos***
 
--`♡´- Pronouns: ***He/His*** or ***TeamMaker***😉 <br>
+-`♡´- <br>
 
 
 <img src="https://media.giphy.com/media/ObNTw8Uzwy6KQ/giphy.gif" width="30px">&nbsp;***Seguridad 01***
 <br>
--`♡´- I’m currently Developing **Paycron** Payment Gateway **@Plaxonic**<br>
+-`♡´- <br>
 
